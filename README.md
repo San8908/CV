@@ -1,2 +1,0 @@
-# CV
-Sachin's CV
